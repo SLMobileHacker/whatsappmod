@@ -2,7 +2,7 @@
 
 
 
-<p align="center">
+align="center">
     Project of ᳆⃞⃚ SMH � - Makes MOD Whatsapp.
   ----|----|
 <h1>[SMH youtube](https://youtube.com/channel/UCn68cnw-awGo_xxr95v75aw
@@ -11,7 +11,7 @@
        
        
     
-</p>
+
 
 <h1>                ᳆⃞MOBILE HAKER 🇱🇰𖤐 </h1>
 <h1 align="center"><b> SMH <h1>🍁 ᳆⃞⃚SMH  </b></h1>
