@@ -15,6 +15,8 @@
 <h1 align="center"><b> THE<h1>🍁 ᳆⃞⃚SMH  </b></h1>
 
 ----|----|
-[SMH](https://chat.whatsapp.com/E0nLYIXyOWOFyDQ9EvdzFX) | [CW4RR10R](https://t.meW4RR10R)
+[SMH youtube](https://youtube.com/channel/UCn68cnw-awGo_xxr95v75aw
+) | SMH Brand එකක් තමා ඉතින් 
  Base, | hepls,idea
-[![](https://telegra.ph/file/1c742619b421e4713e414.jpg?size=50)](https://chat.whatsapp.com/E0nLYIXyOWOFyDQ9EvdzFX) 
+[![](https://telegra.ph/file/1c742619b421e4713e414.jpg?size=50)](https://chat.whatsapp.com/GGIl7nwZ1U46LmI5HeQl3y
+) 
