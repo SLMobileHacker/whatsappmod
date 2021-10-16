@@ -16,7 +16,8 @@
 [![](https://telegra.ph/haker-10-16?size=50)](https://chat.whatsapp.com/GGIl7nwZ1U46LmI5HeQl3y
 ) 
 
-https://telegra.ph/haker-10-16
+[![](https://telegra.ph/haker-10-16?size=50)](https://chat.whatsapp.com/GGIl7nwZ1U46LmI5HeQl3y
+) 
       
        
     
